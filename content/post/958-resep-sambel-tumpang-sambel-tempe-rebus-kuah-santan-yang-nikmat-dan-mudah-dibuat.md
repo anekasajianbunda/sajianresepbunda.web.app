@@ -1,0 +1,106 @@
+---
+description: "Resep Sambel tumpang (sambel tempe rebus kuah santan) yang nikmat dan Mudah Dibuat"
+title: "Resep Sambel tumpang (sambel tempe rebus kuah santan) yang nikmat dan Mudah Dibuat"
+slug: 958-resep-sambel-tumpang-sambel-tempe-rebus-kuah-santan-yang-nikmat-dan-mudah-dibuat
+date: 2021-03-10T21:37:46.895Z
+image: https://img-global.cpcdn.com/recipes/c1519f7db9f547da/680x482cq70/sambel-tumpang-sambel-tempe-rebus-kuah-santan-foto-resep-utama.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/c1519f7db9f547da/680x482cq70/sambel-tumpang-sambel-tempe-rebus-kuah-santan-foto-resep-utama.jpg
+cover: https://img-global.cpcdn.com/recipes/c1519f7db9f547da/680x482cq70/sambel-tumpang-sambel-tempe-rebus-kuah-santan-foto-resep-utama.jpg
+author: Floyd Baker
+ratingvalue: 4.7
+reviewcount: 8
+recipeingredient:
+- "200 gr ato 12 papan tempe"
+- "50 gr 1 bks kerupuk kulit rambak"
+- "50 gr cabe cabe rawit merah  cabe keriting merah"
+- "6 siung bawang merah"
+- "4 siung bawang putih"
+- "2 butir kemiri"
+- "1 buah kencur 2cm"
+- "2 potong lengkuas"
+- "2 lembar daun salam"
+- "2 lembar daun jeruk"
+- "2 bks santan instan"
+- "400 ml air"
+- "secukupnya Garam"
+- " Minyak utk menumis"
+- "5 buah tahu5 btr telur rebus5 potong daging tambahan optional"
+recipeinstructions:
+- "Siapkan bahan. Rebus tempe kemudian lumatkan. Rebus bawang merah, bawang putih, dan cabe, kemudian tiriskan."
+- "Haluskan rebusan bawang merah, bawang putih, cabe, ditambah dengan kencur, kemiri, dan sedikit garam."
+- "Panasakan minyak, tumis bumbu halus. Setelah wangi dan layu tambahkan air. Masukkan daun jeruk, lengkuas, daun salam, dan tahu/daging (bahan tambahan).  *utk telur rebus ditambahkan setelah sambal udah jadi. Masukkan telor, masak sebentar, baru matikan apinya."
+- "Masak sambal sampai mendidih, dan daging sdh matang dan empuk(bila pake). Kemudian masukkan santan didihkan kembali. Cek rasa, terakhir masukkan kerupuk kulit masak sebentar. Matikan apinya."
+- "Sambal tumpang siap dihidangkan."
+- "Selamat mencoba..."
+categories:
+- Resep
+tags:
+- sambel
+- tumpang
+- sambel
+
+katakunci: sambel tumpang sambel 
+nutrition: 266 calories
+recipecuisine: Indonesian
+preptime: "PT36M"
+cooktime: "PT45M"
+recipeyield: "2"
+recipecategory: Lunch
+
+---
+
+
+![Sambel tumpang (sambel tempe rebus kuah santan)](https://img-global.cpcdn.com/recipes/c1519f7db9f547da/680x482cq70/sambel-tumpang-sambel-tempe-rebus-kuah-santan-foto-resep-utama.jpg)
+
+Di era  sekarang , kita memang bisa mengorder hidangan praktis tanpa kudu repot membuatnya sendiri. Tapi, untuk anda yang mau memberikan sajian istimewa pada orang tercinta, maka kita memang lebih baik memasaknya dengan tangan sendiri. Lantaran, memasak sendiri lebih sehat dan juga dapat menyesuaikan sesuai selera keluarga.
+
+Jika anda sedang mencari inspirasi cara membuat sambel tumpang (sambel tempe rebus kuah santan) yang nikmat dan mudah dibuat,maka anda sudah berada di tempat yang tepat. Resep sambel tumpang (sambel tempe rebus kuah santan)  sebenarnya mudah dibuat jika anda membuatnya dengan cara yang benar. Tapi, kamu tidak perlu risau akan gagal dalam melakukannya 
+karena dalam artikel ini kita akan mengupas sambel tumpang (sambel tempe rebus kuah santan) dengan tepat.  
+
+Sambal tumpang. tempe semangit/masam•tempe segar•santan kental•air•bawang putih•bawang merah•cabe rawit•cabe merah besar. Sayur sambel tumpang krecek. tempe semangit•tempe baru•Cabe rawit merah utuh•Daun salam,laos geprek•daun jeruk•krecek krupuk kulit•santan•Bumbu. Sambel Tumpang adalah salah satu masakan favorit di Rumah Seroja, Ibu saya Sambel Tumpang sendiri ada yang bilang dari Sragen, Kediri, atau Solo.
+
+Nah bagi kamu yang akan memasak sambel tumpang (sambel tempe rebus kuah santan) yang sederhana, ada beberapa tahap yang dapat dikerjakan, mulai dari memilih jenis bahan, kemudian penentuan bahan segar, hingga cara mengolah dan menghidangkannya. kamu Tak perlu pusing jika ingin memasak sambel tumpang (sambel tempe rebus kuah santan) yang lezat di mana pun anda berada. Sebab, asalkan kamu  tahu caranya, maka hidangan ini bisa menjadi sajian yang spesial.
+
+Di bawah ini, ada beberapa cara mudah dalam memasak caramembuat sambel tumpang (sambel tempe rebus kuah santan) yang siap dikreasikan. Kali ini, mari kita coba siapkan sambel tumpang (sambel tempe rebus kuah santan) sendiri di rumah. Tetap berbahan yang sederhana, hidangan ini dapat memberi manfaat dalam membantu menjaga kesehatan tubuh kita. Anda dapat menyiapkan Sambel tumpang (sambel tempe rebus kuah santan) memakai 15 jenis bahan dan 6 tahap pembuatan. Berikut ini cara dalam menyiapkan hidangannya.
+
+<!--inarticleads1-->
+
+##### Bahan-bahan dan bumbu yang diperlukan untuk pembuatan Sambel tumpang (sambel tempe rebus kuah santan):
+
+1. Sediakan 200 gr ato 1/2 papan tempe
+1. Gunakan 50 gr /1 bks kerupuk kulit (rambak)
+1. Gunakan 50 gr cabe (cabe rawit merah + cabe keriting merah)
+1. Ambil 6 siung bawang merah
+1. Siapkan 4 siung bawang putih
+1. Gunakan 2 butir kemiri
+1. Siapkan 1 buah kencur (-+2cm)
+1. Gunakan 2 potong lengkuas
+1. Sediakan 2 lembar daun salam
+1. Ambil 2 lembar daun jeruk
+1. Gunakan 2 bks santan instan
+1. Siapkan 400 ml air
+1. Ambil secukupnya Garam
+1. Sediakan  Minyak utk menumis
+1. Gunakan 5 buah tahu/5 btr telur rebus/5 potong daging (tambahan optional)
+
+
+Bahan dasarnya berasal dari tempe semangit atau Tempe yang sudah berumur beberapa hari. Tips Penting: Bumbu wajib sambal tumpang adalah kencur dan daun jeruk purut, usahakan keduanya hadir meski dalam bentuk sediaan Sambel ndeso Ikon Kuliner kampung halaman ini memang ngangeni. sambel tumpang. Cara penyajian sambal tumpang tak jauh beda dengan cara penyajian sambal pecel, yaitu dengan nasi yang di atasnya diberi aneka lalapan atau sayur-mayur yang telah direbus terlebih dahulu lalu disiram dengan sambal tumpang dan diberi peyek sebagai pelengkap, bisa peyek. Sambel Tumpang merupakan kuliner khas Kediri dan Solo. 
+
+<!--inarticleads2-->
+
+##### Langkah-langkah membuat Sambel tumpang (sambel tempe rebus kuah santan):
+
+1. Siapkan bahan. Rebus tempe kemudian lumatkan. Rebus bawang merah, bawang putih, dan cabe, kemudian tiriskan.
+1. Haluskan rebusan bawang merah, bawang putih, cabe, ditambah dengan kencur, kemiri, dan sedikit garam.
+1. Panasakan minyak, tumis bumbu halus. Setelah wangi dan layu tambahkan air. Masukkan daun jeruk, lengkuas, daun salam, dan tahu/daging (bahan tambahan).  - *utk telur rebus ditambahkan setelah sambal udah jadi. Masukkan telor, masak sebentar, baru matikan apinya.
+1. Masak sambal sampai mendidih, dan daging sdh matang dan empuk(bila pake). Kemudian masukkan santan didihkan kembali. Cek rasa, terakhir masukkan kerupuk kulit masak sebentar. Matikan apinya.
+1. Sambal tumpang siap dihidangkan.
+1. Selamat mencoba...
+
+
+Makanan ini terbuat dari tempe semangit alias tempe setengah busuk. Hmmm rasanya khas sekali lho! bahkan di Kediri kuliner ini bisa dijumpai dimana-mana, sejak pagi hingga siang bahkan malam ada saja yang menjajakannya. Sambel Tumpang. ada tempe kemaren di kulkas ? jangan buru buru dibuang diolah saja jadi sajian istimewa ini. Sambel tumpang khas Sragen menggunakan santan untuk kuahnya, sementara isiannya didominasi tempe yang dihaluskan. Sambal khas Sragen ini juga tidak menggunakan kencur seperti daerah lainnya. 
+
+Nah, itulah artikel mengenai  sambel tumpang (sambel tempe rebus kuah santan)  yang sederhana dan mudah dilakukan versi kami. Semoga anda dapat mempraktekkannya dengan hasil yang terbaik. 
+
+Terima kasih anda telah menggunakan resep yang kita tampilkan di halaman ini. Harapan kami, olahan  Sambel tumpang (sambel tempe rebus kuah santan) yang mudah di atas dapat membantu Anda menyiapkan makanan yang enak untuk keluarga/teman maupun menjadi inspirasi bagi Anda yang berkeinginan untuk berjualan makanan. Bagaimana? Gampang kan? Itulah resep sambel tumpang (sambel tempe rebus kuah santan) yang bisa Anda kerjakan di rumah. Selamat mencoba!
+
